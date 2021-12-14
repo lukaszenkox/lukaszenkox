@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Łukasz
-- 👀 I’m interested in sports, basketball and strongman
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on whatever
 - 📫 How to reach me: lukaszswitala06@gmail.com
